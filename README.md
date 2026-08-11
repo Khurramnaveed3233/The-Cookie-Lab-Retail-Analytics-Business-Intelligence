@@ -312,7 +312,7 @@ The complete write-up — including the full analyst narrative, data dictionary,
 
 **Khurram Naveed**
 Data Analyst
-[LinkedIn](#) · [Portfolio](#) · [Email](#)
+[LinkedIn](https://www.linkedin.com/in/khurram-naveed-0083851aa/) · [Portfolio](https://khurramnaveed3233.github.io/Portfolio-/) · [Email](mailto:khurramnaveed4545@gmail.com)
 
 ---
 
